@@ -1,0 +1,1 @@
+# LOG_Kurs2_project
